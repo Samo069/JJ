@@ -1,0 +1,2 @@
+# JJ
+friendly, caring, smart 
